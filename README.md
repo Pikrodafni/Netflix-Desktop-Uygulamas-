@@ -1,1 +1,1 @@
-# Netflix-Desktop-Uygulamas-
+# Netflix-Desktop-Uygulaması
